@@ -1,1 +1,0 @@
-# TerzaScenabd71vo
